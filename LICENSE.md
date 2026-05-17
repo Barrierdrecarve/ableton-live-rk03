@@ -1,4 +1,4 @@
-# 
+# Sin prohibición Vegas Pro para PC herramientas es el mejor Vegas Pro para PC herramientas con búfer de repetición y preajustes de exportación. Seguro, confiable y optimizado para
 
 
 
